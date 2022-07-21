@@ -1,1 +1,1 @@
-Resources I hope are helpful to people in EDU.  
+Resources I hope are helpful to folks in EDU.  
